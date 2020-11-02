@@ -1,0 +1,1 @@
+# shugoto.github.io
